@@ -95,8 +95,10 @@ https://github.com/user-attachments/assets/d1cd3d2c-b52f-4a7e-a22c-2ee520581f46
 <img width="64" height="64" alt="2026_03_22_sickdudemees-23940968" src="https://github.com/user-attachments/assets/6d758542-4486-48f9-9d63-7e13737b30ad" />
 <img width="64" height="64" alt="2026_03_17_new-captain-spirit-23931655" src="https://github.com/user-attachments/assets/ff1df467-9b9c-4e1a-a3ae-08d1f17357fc" />
 <img width="64" height="64" alt="steve (8)" src="https://github.com/user-attachments/assets/d7e75dc2-c92a-47b9-9398-03aa9c331b88" />
+
 ## FAVOURITE GAMES!
 Minecraft
 Gorilla Tag
 Nightclub Sim VR(i don't do weird stuff) 
+
 ## BYE BYE 👋
